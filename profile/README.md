@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello 👋 We are IEEE Student Branch of NSBM
 
 <!--
 
